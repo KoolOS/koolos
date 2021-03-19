@@ -10,7 +10,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on making a harmless virus
 - 🤔 I’m looking for help with making a virus
 - 💬 Ask me about more harmless viruses
-- 📫 How to reach me: yomattee@outlook.com
+- 📫 How to reach me: yomatter@outlook.com
 - 😄 Pronouns: wut
 - ⚡ Fun fact: wut
 -->
